@@ -7,6 +7,8 @@
 
 telegram客服:magalinkvpn2025
 
+VPN软件需要在微软应用商店下载，下载网址：https://apps.microsoft.com/detail/9PDGK0P72WF0
+
 
 视频教程：https://www.youtube.com/watch?v=ayGqX9YCONg
 
